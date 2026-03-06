@@ -15,7 +15,7 @@ Heute habe ich meine Liste aktualisiert, da ich von mehreren Firmen Rückmeldung
 Heute habe ich weitere Firmen recherchiert und angeschaut, unter anderem Bitforge, Hausformat, Dynasoft, Digilan AG und Consor AG. Ich habe geprüft, ob sie Praktikums- oder Einstiegsstellen anbieten.
 
 ## 20.02.2026
-Heute habe ich den aktuellen Stand meiner Bewerbungen überprüft. Einige Firmen wie isolutions, netree, und vm-it haben noch keine Rückmeldung gegeben.
+Heute habe ich den aktuellen Stand meiner Bewerbungen überprüft. Einige Firmen wie netree, und vm-it haben noch keine Rückmeldung gegeben.
 
 ## 27.02.2026
 Heute habe ich nochmals meine Liste durchgeschaut und weitere Firmen überprüft, zum Beispiel axeion, Rivella und isolutions. Ich habe geschaut, ob neue Stellen ausgeschrieben sind.
