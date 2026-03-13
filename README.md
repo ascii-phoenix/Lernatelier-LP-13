@@ -19,3 +19,9 @@ Heute habe ich den aktuellen Stand meiner Bewerbungen überprüft. Einige Firmen
 
 ## 27.02.2026
 Heute habe ich nochmals meine Liste durchgeschaut und weitere Firmen überprüft, zum Beispiel axeion, Rivella und isolutions. Ich habe geschaut, ob neue Stellen ausgeschrieben sind.
+
+## 06.03.2026
+Heute habe ich weitere Firmen aus meiner Liste angeschaut, zum Beispiel finnova, Unblu, Polypoint AG und obt.
+
+## 13.03.2026
+Heute habe ich nochmals nach möglichen Firmen gesucht und mir unter anderem Swisscard, Unispital Basel und aargNET angeschaut.
